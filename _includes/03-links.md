@@ -1,1 +1,1 @@
-https://github.com/DeveloperTeamMember
+[GitHub Profile](https://github.com/DeveloperTeamMember)
