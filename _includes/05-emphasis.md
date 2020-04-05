@@ -1,1 +1,1 @@
-Focused in _**HTML**_ :computer: development.
+Focused in _**HTML**_ web development.
